@@ -1,0 +1,21 @@
+# On being a philosophy student with ADHD
+
+There are few things I can imagine being more detrimental to achieving any success in philosophy than having attention issues. Imagine writing a sentence and your mind constantly shifting from the sentence you are trying to put into words to the fact that there is this one barely visible fingerprint on your screen right there in the upper left corner that is visible only under a certain angle—but you *know* it is there... Also, one of your fingernails is shorter than the other ones and that makes the sensation of typing with that finger different from the rest... Also, there are too many things at your desk in your line of sight so your mind cannot create an ideal separation and put just the computer screen in your focus... Also, your sister upstairs keeps tapping on the floor, and you do everything you can to keep your attention on your train of thought rather than trying to figure out the bpm of that repetitive motion... And that is not to mention numerous simultaneous versions of what to explore after this particular sentence... By the way, did I remember to take Adderall?.. Should I be writing this in Drafts or Obsidian?.. Or should I try setting up Git as I wanted to?.. — Oh, the nicely designed GitHub editor I wanted to try out is only in beta and I haven't received the invite yet...— Obsidian it is then, I guess, but with a different font cause, even though I've spent an evening setting it up to my liking, I find it not good enough now...
+
+— Where was I? Oh, right, attention issues...
+
+This is how writing this introduction went haha. And let me tell you, reading is even worse. At least with writing, I can put everything I have on the page and then edit it out (which is a lie I sometimes tell to myself cause I know how much I hate editing—again, cause of attention issues—so I end up spending a lot of time trying to get each sentence perfect from the get-go). When reading the various thoughts I'm having simultaneously cannot be quickly expressed and pushed aside without causing distraction. 
+
+To be fully honest, my attention issues are not as bad as they used to be. I'm taking ADHD medication, through trial and error I found how to build a distraction-less environment, and most importantly I've been creating habits that make me more efficient even before I realized I had any attention issues as I had learned though therapy and self-reflection. But I still struggle re-reading books I've already marked up cause these lines and colors distract me and don't even get me starting on going back to notes I've taken—my brain craves the dopamine from new material so reviewing them is often a pointless exercise. But I'm working on that too. 
+
+That is not to say that having ADHD has not had its benefits. Due to it, for example, I have greatly increased my ability to process information immediately as fast as possible (because there will not be a time for that later), or I can hyperfocus on one issue and explore it in multiple dimensions for hours. By the way, sorry if I am not using some terminology correctly—I'm only at the beginning of figuring out what is it exactly that my brain does as well as what ADHD is... And currently there ain't much available energy for that as I'm fighting cancer, trying to mask all the physical and psychological consequences of that from others and from myself, being dissociated from my life, and at the same time trying to somewhat continue with my education by reading Hegel's *The Phenomenology of Spirit*. So maybe in one of the next drafts I will have a clearer and more precise explanation and examination of exactly what ADHD means in my life. But for now, I think I am satisfied with this attempt to express the experience itself in writing form.
+
+tried to but im feeling too ish
+like 4.5/10 only or so
+but still
+i can feel my stomach upset
+i can feel being nauseated
+i can feel the headache
+and i can feel my anxiety
+usually i hyperfocus so i mask all of that and dont notice as much
+but im too tired to focus on anything so much, so i feel everythin
